@@ -1,1 +1,1 @@
-Wang_YZ AI works
+王吟竹AI作品
